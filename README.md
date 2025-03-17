@@ -1,8 +1,6 @@
 ## Hi, I'm lss 
 
 Diploma Holder of Politeknik Mukah Sarawak</br>
-6 months intership at Bintulu Development Authority</br>
-1 year working experience in Bintulu Development Authority as assistant ICT administrative officer gred N29</br>
 Currently Software Engineering Student at University Tetchnology Malaysia(Kuala Lumpur)</br>
 
 
